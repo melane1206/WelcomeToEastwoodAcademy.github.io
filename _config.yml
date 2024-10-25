@@ -1,0 +1,5 @@
+navigation:                
+  - {file: "index.html", title: Teachers}
+  - {file: "README.md", title: Clubs}
+  - {file: title: Student Life, url: "https://forms.gle/UME4uwP1vTfaVx5V8"}
+  - {file: title: Submission Request, url: "https://forms.gle/UME4uwP1vTfaVx5V8"}
