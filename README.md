@@ -11,4 +11,6 @@
 ### • Provide experiences and opportunities that empower students to discover and engage their passions. 
 ### • Exposing students to the content and context needed to become discerning consumers and creators of information. 
 ### • Nurture a safe and inviting educational community that embraces diversity and freedom of thought. Core Values 
-### • Practice perseverance • Exhibit integrity • Take care of yourself and others 
+### • Practice perseverance 
+### • Exhibit integrity 
+### • Take care of yourself and others 
