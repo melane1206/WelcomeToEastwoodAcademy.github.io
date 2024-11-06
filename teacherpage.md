@@ -3,11 +3,16 @@
 ## TEACHERS
 ![Profile pic - Laura Baumgart](https://github.com/user-attachments/assets/c1f2bc8e-d604-44bc-a5a1-0ea18ee3362c)
 ### Baumgart, Laura
-
+#### Classes: AP World History, World History, AP European History, History in Film
+#### Fun Facts: "1. I studied in Ireland in college. 2. My favorite book is Chalie and the Chocolate Factory. 3. I can tap dance."
+#### Email: lbaumgar@houstonisd.org
 ### Cooke, Miracle
 ### Eloja, Marlyn
 ![34-DSCF4737 - Jasmine Lee](https://github.com/user-attachments/assets/962895a2-20a2-44e4-a994-f84e51f6151b)
 ### Lee, Jasmine
+#### Classes: Chemistry and Human Anatomy & Physiology
+#### Fun Facts: "1. I can sleep for over 12 hours straight if given the time. 2. I enjoy weight lifting and hiking. 3. I like cats more than dogs"
+#### Email: jasmine.lee@houstonisd.org
 ### Martin, Justin
 ![Profile Pic - Rhett Martinez](https://github.com/user-attachments/assets/44c9d5a3-c905-4d5a-ad5b-63b800276b0f)
 ### Martinez, Rhett
