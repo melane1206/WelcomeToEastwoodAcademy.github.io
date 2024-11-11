@@ -71,9 +71,21 @@
 ## Administrators
 ![Screenshot 2024-07-02 142851 - Natasha CruzJefferson](https://github.com/user-attachments/assets/e55ffc2d-f0d0-4ed1-b48a-54196cc72501)
 ### Cruz-Jefferson, Natasha
+#### Position: Principal
+#### Fun Facts: 
+#### Email:
 ![Harwell - Jennifer Harwell](https://github.com/user-attachments/assets/344dd786-89e0-4244-97e6-b99173190734)
 ### Harwell, Jennifer
+#### Position: Assistant Principal
+#### Fun Facts: 
+#### Email:
 ![Directory Pic - Matthew Higgins](https://github.com/user-attachments/assets/6739fe90-07ce-436a-8a81-ccb11e755c07)
 ### Higgins, Matthew
+#### Position: Administrator
+#### Fun Facts: 
+#### Email:
 ![05fa4673-9af5-4d1f-a2b6-47040d882024 - Isamar Ramirez (1)](https://github.com/user-attachments/assets/71e00372-961c-44d2-be07-0ee724e6fec3)
 ### Ramirez, Isamar
+#### Position: School Counseling (Social-Emotional Lessons, Academic Guidance, College/Career Advising)
+#### Fun Facts: 
+#### Email:
