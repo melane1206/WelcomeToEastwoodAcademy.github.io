@@ -72,8 +72,9 @@
 ![Screenshot 2024-07-02 142851 - Natasha CruzJefferson](https://github.com/user-attachments/assets/e55ffc2d-f0d0-4ed1-b48a-54196cc72501)
 ### Cruz-Jefferson, Natasha
 #### Position: Principal
-#### Fun Facts: 
-#### Email:
+#### Fun Facts: "1. I speak Spanish, English, and French! 2. I studied abroad in France and got lost traveling to the Eifel Tower on New Year's Eve! 3. I played Trumpet growing up in school and at church."
+#### Email: natasha.cruzjefferson@houstonisd.org
+
 ![Harwell - Jennifer Harwell](https://github.com/user-attachments/assets/344dd786-89e0-4244-97e6-b99173190734)
 ### Harwell, Jennifer
 #### Position: Assistant Principal
