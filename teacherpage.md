@@ -34,6 +34,7 @@
 #### Classes: Government/Economics, AP Government/Economics, Debate, and Fundamentals of AI
 #### Fun Facts: "1. I lived in Alaska during my childhood. 2. I have hosted 9 foreign exchange students from around the world. 3. I won a Texas Hold 'em Tournament in Las Vegas."
 #### Email: Ryan.monceaux@houstonisd.org
+![image](https://github.com/user-attachments/assets/942238bf-c9f3-4f78-9ef3-c3dda62190a4)
 ### Oxley, Jacob
 #### Classes: Physics, AP Physics 1, AP Physics 2, and AP Precalculus
 #### Fun Facts: "1. I went to college at Illinois Institute of Technology in Chicago. 2. The Big Bang Theory is my least favorite show. 3. I grew up in Kansas City, Missouri"
@@ -74,19 +75,18 @@
 #### Position: Principal
 #### Fun Facts: "1. I speak Spanish, English, and French! 2. I studied abroad in France and got lost traveling to the Eifel Tower on New Year's Eve! 3. I played Trumpet growing up in school and at church."
 #### Email: natasha.cruzjefferson@houstonisd.org
-
 ![Harwell - Jennifer Harwell](https://github.com/user-attachments/assets/344dd786-89e0-4244-97e6-b99173190734)
 ### Harwell, Jennifer
 #### Position: Assistant Principal
-#### Fun Facts: 
-#### Email:
+#### Fun Facts: "1. I love to travel and try new food (specifically spicy food). 2. I love to read and over 1000 books in my house.  3.  I collect mini figurines from all the places that I visit. "
+#### Email: JHarwell@houstonisd.org
 ![Directory Pic - Matthew Higgins](https://github.com/user-attachments/assets/6739fe90-07ce-436a-8a81-ccb11e755c07)
 ### Higgins, Matthew
 #### Position: Administrator
-#### Fun Facts: 
-#### Email:
+#### Fun Facts: "1. I am a published writer. 2. All of my 3 brothers are bald. 3. My favorite ice cream is pistachio. "
+#### Email: mhiggins@houstonisd.org
 ![05fa4673-9af5-4d1f-a2b6-47040d882024 - Isamar Ramirez (1)](https://github.com/user-attachments/assets/71e00372-961c-44d2-be07-0ee724e6fec3)
 ### Ramirez, Isamar
 #### Position: School Counseling (Social-Emotional Lessons, Academic Guidance, College/Career Advising)
-#### Fun Facts: 
-#### Email:
+#### Fun Facts: "1. I trained my dog for animal-assisted therapy; she loves visiting kids and senior citizens! 2. I was in show choir in high school. 3. My family were migrant farm workers, so I got to grow up all over the country."
+#### Email: iramire2@houstonisd.org
